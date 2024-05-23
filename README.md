@@ -7,7 +7,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=2100029010-mohanteja&label=Profile%20views&color=0e75b6&style=flat" alt="2100029010-mohanteja" /> </p>
 
-- 📫 How to reach me **2100029010@kluniversity.in**
+- 📫 How to reach me **mohantejajonnadula7@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
